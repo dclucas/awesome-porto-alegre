@@ -9,9 +9,10 @@ This is a heavily opinionated list of places to go while in Porto Alegre. Pull r
 
 Porto Alegre is one of the barbecue capitals of the world. The now classic *churrascaria* model was born here and exported to countless places.
 
-* Costela no Rolete
-* Na Brasa
-* Grelhattu's
+* **Costela no Rolete**
+* **Na Brasa**
+* **Grelhattu's**
+* **Parrilla del Sur**
 
 ### Italian
 
@@ -33,6 +34,8 @@ Porto Alegre is one of the barbecue capitals of the world. The now classic *chur
 ### Vegetarian and Vegan
 * **B Burger**
 * **Ocidente**
+
+### Misc
 
 ### Splurge
 * ** Koh Pee Pee**
