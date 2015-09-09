@@ -48,9 +48,9 @@ The word xis (literally the name of the letter 'X' in Portuguese) is a phonetica
 * **Rossi Grelhados** ($$): focus is on meat (noticing a trend here? It's not me, it's this carnivorous city!), at a pretty decent price you can get a great steak, with fries and/or salad as a side.
 
 ### splurge
-* ** Koh Pee Pee** ($$$$$)
-* ** Hashi ** ($$$$$)
-* ** Floriano Spiess ** ($$$$$)
+* **Koh Pee Pee** ($$$$$)
+* **Hashi** ($$$$$)
+* **Floriano Spiess** ($$$$$)
 
 ## drinks
 
