@@ -21,6 +21,7 @@ The word xis (literally the name of the letter 'X' in Portuguese) is a phonetica
 * **Speed Lanches**
 * **Tia Zefa**
 * **Cavanhas**
+* **Papa Léguas**
 * **Bauro do Trianon**
 
 ### burgers
@@ -38,6 +39,8 @@ The word xis (literally the name of the letter 'X' in Portuguese) is a phonetica
 * **Peppo Cuccina**
 
 ### misc
+
+* **Lancheria do Parque**
 
 ### on a budget
 
