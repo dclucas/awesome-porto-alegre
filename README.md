@@ -19,11 +19,11 @@ Porto Alegre is one of the barbecue capitals of the world. The now classic *chur
 
 The word xis (literally the name of the letter 'X' in Portuguese) is a phonetical translation of "cheese" and was used to describe cheese burgers. In the same way the word was switched over time, so was the approach to preparing these. If you are looking for traditional American burgers, look at the section below. This section is about xis. And you should absolutely try them.
 
-* :star:**Speed Lanches** ($$)
+* :star:**Speed Lanches** ($$) the quick. the dirty. the best. If you want to take an Orcish friend somewhere in Porto Alegre, this is the place to go. Suggestion is to aim for non-traditional varieties (in other words, try the xis salada elsewhere), such as xis calabresa (sausage), xis coração (chicken heart, don't make that face until you try it) or the bauro varieties (for Brazilians coming from other states, this has nothing to do with the traditional bauru).
 * **Tia Zefa** ($$)
-* **Cavanhas** ($$)
-* **Papa Léguas** ($$)
-* **Bauro do Trianon** ($$)
+* **Cavanhas** ($$) home of more sophistacated xis varieties (but still loyal to its core values), such as the xis português (bell pepper, olives, onions, besides the omnipresent meat) and the xis 373 (all sorts of cheese in it). Recommended for the variety, especially if you are aiming for a 'tour du xis'.
+* **Papa Léguas** ($$) serious contender for the roughest xis out their, their specialty xis (creatively named 'xis papa léguas') can be summarized as "contains everything we could find in our way". If your arteries aren't clogging by just reading this section, they will soon be.
+* **Bauro do Trianon** ($$) home of one of the most respectable baurus in town. Now, your Southern Brazilian bauru has little resemblance to the snack you get by the similar name on other parts of the country. These beasts are usually enough to satisfy a good appetite and are very similar to a xis (differences being on the bread that is used and the fact that chopped meat, instead of a minced burger is used). If you want the canonical Porto Alegre bauru (and one of the cleanest places on the list), this is your spot.
 
 ### burgers
 
