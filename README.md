@@ -9,14 +9,42 @@ This is a heavily opinionated list of places to go while in Porto Alegre. Pull r
 
 Porto Alegre is one of the barbecue capitals of the world. The now classic /churrascaria/ model was born here and exported to countless places.
 
+* Costela no Rolete
+* Na Brasa
+* Grelhattu's
+
 ### Italian
 
+* Atelier das massas
+* Peppo Cuccina
 
 ### Xis
 
-## drink
+* Speed Lanches
+* 
+
+### Burgers
+
+* Bife
+* 
+
+## Vegetarian and Vegan
+* B Burger
+* Ocidente
+
+## drinks
+
+* Lagom Brewpub
+* Bier Markt
+* Malt Store
+* Mulligan
 
 ## culture
+
+* Usina do Gasômetro
+* Casa de Cultura Mário Quintana
+* MARGS
+* Santander Cultural
 
 ## party
 
