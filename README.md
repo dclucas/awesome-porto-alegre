@@ -11,6 +11,7 @@ Porto Alegre is one of the barbecue capitals of the world. The now classic *chur
 
 * :star:**Costela no Rolete** ($$$): Not a traditional churrascaria, both in meat selection (this place focuses exclusively on ribs) as well as in brabecuing technique (the skewers of Southern Brazilan barbecue tradition are not used), but still a must go for meat lovers.
 * **Na Brasa** ($$$$$)
+* **Galpão Crioulo** ($$$$): go for the experience. At this churrascaria, you will get the whole shebang: all kinds of barbecued meat, plus a local folklore show (at night) and lessons on how to brew mate.
 * **Grelhattu's** ($$$)
 * **Parrilla del Sur** ($$$$)
 
