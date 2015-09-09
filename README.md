@@ -41,7 +41,8 @@ The word xis (literally the name of the letter 'X' in Portuguese) is a phonetica
 
 ### misc
 
-* **Lancheria do Parque** ($$)
+* **Lancheria do Parque** ($$): ask for a "suco misto" and you will get a jug of fresh juice, prepared with whatever fruits are at hand. And you will be glad you did. Good for both full meals (the Brazilian classic Prato Feito -- steak, rice, salad, beans, etc., on a dish) as well as burgers and hot dogs. And while you eat, marvel at how the crew manages to work flawlessly amidst one of the most chaotic ordering processes in the world.
+* **Barbieri** ($$$)
 
 ### on a budget
 
