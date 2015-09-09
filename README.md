@@ -9,7 +9,7 @@ This is a heavily opinionated list of places to go while in Porto Alegre. Pull r
 
 Porto Alegre is one of the barbecue capitals of the world. The now classic *churrascaria* model was born here and exported to countless places.
 
-* **Costela no Rolete** ($$$): Not a traditional churrascaria, both in meat selection (this place focuses exclusively on ribs) as well as in brabecuing technique (the skewers of Southern Brazilan barbecue tradition are not used), but still a must go for meat lovers.
+* :star:**Costela no Rolete** ($$$): Not a traditional churrascaria, both in meat selection (this place focuses exclusively on ribs) as well as in brabecuing technique (the skewers of Southern Brazilan barbecue tradition are not used), but still a must go for meat lovers.
 * **Na Brasa** ($$$$$)
 * **Grelhattu's** ($$$)
 * **Parrilla del Sur** ($$$$)
@@ -18,7 +18,7 @@ Porto Alegre is one of the barbecue capitals of the world. The now classic *chur
 
 The word xis (literally the name of the letter 'X' in Portuguese) is a phonetical translation of "cheese" and was used to describe cheese burgers. In the same way the word was switched over time, so was the approach to preparing these. If you are looking for traditional American burgers, look at the section below. This section is about xis. And you should absolutely try them.
 
-* **Speed Lanches** ($$)
+* :star:**Speed Lanches** ($$)
 * **Tia Zefa** ($$)
 * **Cavanhas** ($$)
 * **Papa Léguas** ($$)
@@ -54,18 +54,19 @@ The word xis (literally the name of the letter 'X' in Portuguese) is a phonetica
 
 ## drinks
 
-* Lagom Brewpub ($$$)
-* Bier Markt ($$$)
-* Malt Store ($$$)
-* Mulligan ($$$)
-* Dirty Old Man ($$$)
+* :star: **Lagom Brewpub** ($$$)
+* **Bier Markt** ($$$)
+* **Malt Store** ($$$)
+* **Mulligan** ($$$)
+* **Dirty Old Man** ($$$)
+* **Champanharia Ovelha Negra** ($$$)
 
 ## culture
 
-* Usina do Gasômetro
-* Casa de Cultura Mário Quintana
-* MARGS
-* Santander Cultural
+* **Usina do Gasômetro**
+* **Casa de Cultura Mário Quintana**
+* **MARGS**
+* **Santander Cultural**
 
 ## party
 
